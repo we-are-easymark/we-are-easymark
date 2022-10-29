@@ -1,0 +1,3 @@
+- 👋 Hi, we are @easymark
+- 🌱 we are a company that helps people turn their ideas into reality
+- IF YOU LIKE OUR PROJECT AND YOU WANNA CREATE ONE YOU CAN CONTACT US
